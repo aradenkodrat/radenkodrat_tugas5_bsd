@@ -1,0 +1,1 @@
+# radenkodrat_tugas7_bsd
